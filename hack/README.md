@@ -1,0 +1,1 @@
+[Hack](https://gist.github.com/nakamuraos/717eb99b5e145ed11cd754ad3714b302)
